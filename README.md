@@ -39,8 +39,6 @@ Komentar netizen ramai menanyakan soal video yang viral dan mencibirnya. Tapi ta
 
 Berikut ini isi lengkap pernyataan permintaan maaf Bu Salsa:
 
-https://kryvon.cfd/Full-Original-Video-bu-guru-salsa
-
 “Sebelumnya asalamualaikum warahmatullahi wabarakatuh. Dengan video ini saya mengucapkan mohon maaf yang sebesar-besarnya kepada pihak yang dirugikan atas kasus saya. Saya tidak akan menyebutkan instansi manapun dalam video ini untuk kebaikan bersama. Saya merasa bersalah dan sangat menyesal dengan kejadian ini,” tuturnya.
 
 Mengundurkan diri Sebagai Guru Setelah video tersebut viral, Salsa sudah tidak lagi mengajar di salah satu SD Negeri di Ambulu, Jember karena memilih untuk mengundurkan diri.
